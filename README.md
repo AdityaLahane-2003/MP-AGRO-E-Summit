@@ -1,2 +1,2 @@
 # MP-AGRO-E-Summit 
-## TEam Details:
+## TRAM DETAILS:
